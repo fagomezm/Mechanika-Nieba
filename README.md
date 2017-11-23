@@ -1,3 +1,0 @@
-# Mechanika-Nieba
-
-Doesnt matter
